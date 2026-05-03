@@ -12,8 +12,26 @@ I always took my time w you and i luv ur
 humourr <3 thank you for being there!
 
 @Our16bitwars / Adachi / Kiyo 
-HIII PEEP, ilysmm too !! thanks u for talking to me alot i love ur talking and Jokes ^^ i think ur not clingy at all! ily, and im greatful i could be there to help u thru anything ur struggling with! hugs u ily!! ᯓ★
+HIII PEEP, ilysmm too !! thanks u for talking to me alot i love ur talking and Jokes ^^ i think ur not clingy at all! ily, and im greatful i could be there to help u thru anything ur struggling with! hugs u ily!! ᯓ★ (i forgot how to add those pink things HELP??)
+
+@liminalheaven / limi / rosa / rosalina
+HII WB (2.4.2026) WE MISSED U AND I DID TOO,, IM SO GLAD WE ALL REUNITED also thank u for being as freaky as me yk yk ᯓ★
 ![Your banner](https://files.catbox.moe/j6j0io.gif)
+
+◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+
+non - pt
+
+@bvrryyin / yin / su 
+yes hi my wife yes hi uh uh hi kyoko hi ayato yes u won't see this but hi <3
+
+@Eepysamu / Rose
+yes we shall make dazai shrines and yea <3 WE LOVE DAZAI !! lets yumeship together twin and so on
+
+@bbq_cereal / mud
+thank u for making me a member of the dazai shrine bro T_T because we love dazai yknow like the dazai osamu yk yk yk yk dazai yk dazai from bsd 
+
+⸜(｡˃ ᵕ ˂)⸝♡
 
 kiyo , necro = FAV TRIO i love u gys!
 
