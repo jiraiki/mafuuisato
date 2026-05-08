@@ -11,7 +11,7 @@ Ur my first hoyo friend :> (genshin specifically)
 I always took my time w you and i luv ur
 humourr <3 thank you for being there!
 
-@Our16bitwars / Adachi / Kiyo 
+@Our16bitwars / Sas / Funkbeat
 HIII PEEP, ilysmm too !! thanks u for talking to me alot i love ur talking and Jokes ^^ i think ur not clingy at all! ily, and im greatful i could be there to help u thru anything ur struggling with! hugs u ily!! ᯓ★ (i forgot how to add those pink things HELP??)
 
 @liminalheaven / limi / rosa / rosalina
