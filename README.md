@@ -23,17 +23,17 @@ HII WB (2.4.2026) WE MISSED U AND I DID TOO,, IM SO GLAD WE ALL REUNITED also th
 non - pt
 
 @bvrryyin / yin / su 
-yes hi my wife yes hi uh uh hi kyoko hi ayato yes u won't see this but hi <3
+yes hi my wife yes hi uh uh hi kyoko hi ayato yes u won't see this but hi <3 thank u for being there for me when no one else was.. Thank u for realising im struggling and taking ur time with me.. i truly appreciate ur presence and im grateful we met. yet im so sorry ur also hurting too. but thank u for making me laugh while others were busy also hurting. I really love u <3
 
 @Eepysamu / Rose
-yes we shall make dazai shrines and yea <3 WE LOVE DAZAI !! lets yumeship together twin and so on
+yes we shall make dazai shrines and yea <3 WE LOVE DAZAI !! lets yumeship together twin and so on. SIGZAI WILL BE CANON.. also, I hope u live.
 
 @bbq_cereal / mud
 thank u for making me a member of the dazai shrine bro T_T because we love dazai yknow like the dazai osamu yk yk yk yk dazai yk dazai from bsd 
 
 ⸜(｡˃ ᵕ ˂)⸝♡
 
-kiyo , necro = FAV TRIO i love u gys!
+sas , necro = Fav Trio, i love u gys!
 
 anybody reading this (not in these mentions)
 i hope i can be ur friend!
@@ -73,4 +73,4 @@ fotowall ᯓ★
 
 ![Your Banner](https://64.media.tumblr.com/9ac40ffa7f3ce4b2c323fd8436733226/c66445df1a34b26b-68/s1280x1920/ff8585a4a8f89c2c56477d1907274ae8bcc5aa3d.png)
 
-<a href="https://imgbox.com/N4fTY1Y7" target="_blank"><img src="https://images2.imgbox.com/cd/36/N4fTY1Y7_o.png" alt="image host"/></a>
+
