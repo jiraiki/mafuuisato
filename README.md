@@ -33,7 +33,7 @@ thank u for making me a member of the dazai shrine bro T_T because we love dazai
 
 ⸜(｡˃ ᵕ ˂)⸝♡
 
-sas , necro = Fav Trio, i love u gys!
+
 
 anybody reading this (not in these mentions)
 i hope i can be ur friend!
@@ -46,31 +46,9 @@ THANK YOU FOR BEING HERE FOR ME!
 & THANK YOU FOR BEING MY FRIEND!!
 I'm grateful to have met you all.
 
-fotowall ᯓ★
+this is cringe ik
 
 
-<a href="https://imgbox.com/S8b6UvvW" target="_blank"><img src="https://images2.imgbox.com/57/0a/S8b6UvvW_o.jpg" alt="image host"/></a>
 
-<a href="https://imgbox.com/bDraMWrs" target="_blank"><img src="https://thumbs2.imgbox.com/cd/e4/bDraMWrs_t.jpg" alt="image host"/></a>
-<a href="https://imgbox.com/0sW6S1Rs" target="_blank"><img 
-                                                        src="https://thumbs2.imgbox.com/f1/df/0sW6S1Rs_t.jpg" alt="image host"/></a>
-<a href="https://imgbox.com/H4po0QC9" target="_blank"><img src="https://thumbs2.imgbox.com/54/06/H4po0QC9_t.jpg" alt="image host"/></a>
-
-<a href="https://imgbox.com/0YzXQiiF" target="_blank"><img src="https://thumbs2.imgbox.com/b4/cd/0YzXQiiF_t.jpg" alt="image host"/></a>
-<a href="https://imgbox.com/DY3sCw7R" target="_blank"><img src="https://thumbs2.imgbox.com/9b/e9/DY3sCw7R_t.jpg" alt="image host"/></a>
-<a href="https://imgbox.com/G65AksXs" target="_blank"><img src="https://thumbs2.imgbox.com/61/d5/G65AksXs_t.jpg" alt="image host"/>
-
-*xx me: 'why am I a freaking bunnygirl'*
-
-────୨ৎ────
-
-[Sas' Github](https://github.com/DoctorFunkbeat)
-
-
-[Necro's Github](https://github.com/DWnecrozzma)
-
-    they are the ones sitting with me btw
-
-![Your Banner](https://64.media.tumblr.com/9ac40ffa7f3ce4b2c323fd8436733226/c66445df1a34b26b-68/s1280x1920/ff8585a4a8f89c2c56477d1907274ae8bcc5aa3d.png)
 
 
