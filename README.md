@@ -5,7 +5,7 @@
 
 non - pt
 
-@bvrryyin / yin / su 
+@bvrryyin / sensationalsushi / yin / koi 
 yes hi my wife yes hi uh uh hi kyoko hi ayato yes u won't see this but hi <3 thank u for being there for me when no one else was.. Thank u for realising im struggling and taking ur time with me.. i truly appreciate ur presence and im grateful we met. yet im so sorry ur also hurting too. but thank u for making me laugh while others were busy also hurting. I really love u <3
 
 @Eepysamu / Rose
